@@ -1,0 +1,2 @@
+# Edu-Tanakrit
+Strong-study
